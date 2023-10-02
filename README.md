@@ -1,4 +1,4 @@
-# L'indivuduo Sovrano 
+# L'individuo Sovrano 
 ### Come sopravvivere e prosperare durante la caduta dello stato sociale
 
 Traduzione Italiana di *The Sovereign Individual*. 
