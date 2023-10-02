@@ -1,22 +1,21 @@
 # L'indivuduo Sovrano 
 ### Come sopravvivere e prosperare durante la caduta dello stato sociale
 
-Traduzione Italiana di _The Sovereign Individual_. 
+Traduzione Italiana di *The Sovereign Individual*. 
 
 Opera originale: William Rees-Mogg e James Dale Davidson
 
-Traduzione Italiana e Revisione: [CypherGatto]() e [Augmented_BTC]()
+Traduzione Italiana: [CypherGatto]() e [Augmented_BTC]()
+
+Revisione di:
 
 [Licenza](LICENSE)
-
-[Edizione Cartacea e Kindle]()
 
 Donazioni:
 
 ## Introduzione alla Traduzione Italiana
 
 [Introduzione Italiana](/INTRO-ITA.md)
-
 
 ## Indice
 
