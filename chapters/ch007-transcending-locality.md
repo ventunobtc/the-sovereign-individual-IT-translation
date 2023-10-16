@@ -185,7 +185,7 @@ Il cyber-commercio porterà sicuramente ad una cyber-moneta, è inevitabile. Que
 
 ### _Fare affari senza il dollaro_
 
-Ovviamente questo commercio sarà denazionalizzato. Quando il Sovrano Individuo potrà operare attraverso i confini in un regno senza contraltare fisico, non sarà più disposto a tollerare che un governo territoriale possa rubargli ricchezza tramite inflazione. E perché dovrebbe? Il controllo della moneta passerà di mano, dalla stanza dei bottoni al libero mercato. Qualsiasi privato o qualsiasi azienda potrà facilmente svendere la valuta che appaia in pericolo di deprezzamento, poiché non sarà più possibile imporre un'unica valuta a corso legale.
+Ovviamente questo commercio sarà denazionalizzato. Quando l' Individuo Sovrano potrà operare attraverso i confini in un regno senza contraltare fisico, non sarà più disposto a tollerare che un governo territoriale possa rubargli ricchezza tramite inflazione. E perché dovrebbe? Il controllo della moneta passerà di mano, dalla stanza dei bottoni al libero mercato. Qualsiasi privato o qualsiasi azienda potrà facilmente svendere la valuta che appaia in pericolo di deprezzamento, poiché non sarà più possibile imporre un'unica valuta a corso legale.
 
 ### _Ridurre gli svantaggi del baratto_
 
